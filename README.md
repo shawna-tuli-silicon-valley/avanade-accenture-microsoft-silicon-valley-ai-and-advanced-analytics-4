@@ -4,3 +4,5 @@
 ![avanade](https://github.com/shawna-tuli-silicon-valley/avanade-accenture-microsoft-silicon-valley-ai-and-advanced-analytics-4/assets/19508013/941e4811-65b0-49cf-b2df-1d957191e11e)
 
 ![M](https://github.com/shawna-tuli-silicon-valley/avanade-accenture-microsoft-silicon-valley-ai-and-advanced-analytics-4/assets/19508013/5421888e-a2fa-41ef-a5b9-52abbd1bb26b)
+
+"A big thank you for your continued support of ICS Capstone Projects. The impact you have on our students' learning and practical experience is tremendous." - Mimi Anderson (UCI ICS Capstone Projects Associate Director)
